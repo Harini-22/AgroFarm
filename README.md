@@ -2,6 +2,14 @@
 
 ![image](https://user-images.githubusercontent.com/102860861/235868361-17d39b67-4709-4376-ab41-f8c78699e97f.png)
 
+![image](https://github.com/Harini-22/AgroFarm/assets/102860861/f7710b42-1f16-472a-bb37-039936dd5a89)
+
+![image](https://github.com/Harini-22/AgroFarm/assets/102860861/2a9442d2-fb32-45ee-965d-b6eb94a1ac4e)
+
+![image](https://github.com/Harini-22/AgroFarm/assets/102860861/96a6ac6d-e009-449a-8b33-15d6bd6817c0)
+
+
+
 ![image](https://user-images.githubusercontent.com/102860861/235868970-9128f543-4aa7-4a06-8448-1306f18e4a0d.png)
 ![image](https://user-images.githubusercontent.com/102860861/235876132-54fa690e-fc6c-41e0-9d4e-5a7737bcccf7.png)
 ![image](https://user-images.githubusercontent.com/102860861/235876218-a0c460a4-5b60-45d3-86bf-e434a910b27d.png)
