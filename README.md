@@ -8,6 +8,12 @@
 
 ![image](https://github.com/Harini-22/AgroFarm/assets/102860861/96a6ac6d-e009-449a-8b33-15d6bd6817c0)
 
+![image](https://github.com/Harini-22/AgroFarm/assets/102860861/babaaaf0-f5a4-4a63-b4ed-0a6e7a55b596)
+
+![image](https://github.com/Harini-22/AgroFarm/assets/102860861/dbf189e3-94b5-4c68-a4b9-57fb2460f5ef)
+
+
+
 
 
 ![image](https://user-images.githubusercontent.com/102860861/235868970-9128f543-4aa7-4a06-8448-1306f18e4a0d.png)
